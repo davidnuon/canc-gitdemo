@@ -5,3 +5,5 @@
 ALL YOUR CODE ARE BELONG TO US
 
 Feburary 19th, 2022
+
+Visit my LiveJournal
